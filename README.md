@@ -1,0 +1,2 @@
+# GodLand
+Hola a aliens, humanos, unicornios o toda criatura que lea esto, mi nombre es GodGami y soy un gamer algo novato, y demasiado humilde, y comencé en YouTube porque deseo ser conocido, por lo menos por mas variedad de personas y no solo  las que conozco, Yo les enseñare como jugar, tutoriales, videos de risa y talvez video reacciones, por ahora dependo de ti de que te suscribas y mi objetivo es llegar a los 1000 sub porque desde hay me puedo considerar influente y eso me haría bastante reconocido, y tan vez consiga gente con la cual jugar
